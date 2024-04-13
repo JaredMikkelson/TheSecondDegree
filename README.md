@@ -2,7 +2,7 @@ Hi I'm Jared Adrian Mikkelson!
 
 I grew up in Prairie du Chein, Wisconsin.
 
-I am an artist 🎨 Film maker, actor, singer, and soon to be engineer.
+I am an artist, Film  maker, actor, singer, and soon to be engineer.
 
 I have sold many paintings to people as well as businesses, restaurants, wineries, coffee bars. 
 
